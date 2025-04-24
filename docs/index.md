@@ -35,4 +35,4 @@
 
 ご質問やお問い合わせは以下のメールアドレスまでお願いいたします。
 
-m.hiyu@gmail.com 
+m.hiyu3040@gmail.com 
